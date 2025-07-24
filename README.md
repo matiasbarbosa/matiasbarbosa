@@ -1,6 +1,6 @@
 # Matias Gomes Barbosa
 
-**Rio de Janeiro, RJ** | **matiasgomesrj@gmail.com** | **[linkedin.com/in/matias-gomes-barbosa](https://linkedin.com/in/matias-gomes-barbosa)**
+**Rio de Janeiro, RJ** | **[E-mail](mailto:matiasgomesrj@gmail.com)** | **[Linkedin](https://linkedin.com/in/matias-gomes-barbosa)**
 
 ---
 
